@@ -11,7 +11,7 @@
 
 - 📫 How to reach me: **contact@whising.space/@whywhising on discord**
 
-- ⚡ Fun fact: **I am 14 (as of 21/02/26)**
+- ⚡ Fun fact: **I am 14 years old (as of 21/02/26)**
 
 - [![Hack Club](https://img.shields.io/badge/Hack_Club-%23EC3750.svg?style=flat&logo=Hack-Club&logoColor=white)](https://hackclub.com/) Hackclub: https://hackclub.com
 
